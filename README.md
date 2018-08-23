@@ -1,2 +1,2 @@
 # graphics_visual_computing
-sir na karon ra gyud ko ka send ...
+sir this is my file of graphics bornillo
